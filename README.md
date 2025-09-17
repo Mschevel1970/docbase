@@ -1,4 +1,4 @@
-Here’s a clear English description with a structured list per theme:
+
 
 ---
 
